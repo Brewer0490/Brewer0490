@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Brewer0490
+- 👋 Hi, I’m @Brewer0490 a.k.a David Brewer, a.k.a Brewdawg, a.k.a Big D
 - 👀 I’m interested in sports, hunting, fishing and video games
 - 🌱 I’m currently learning IT Programming at NSCC
 - 💞️ I’m looking to collaborate on school projects and my website
